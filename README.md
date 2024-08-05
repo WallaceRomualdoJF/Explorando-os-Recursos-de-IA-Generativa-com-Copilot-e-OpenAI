@@ -1,4 +1,4 @@
-# Explorando-os-Recursos-de-IA-Generativa-com-Copilot-e-OpenAI
+# Explorando Os Recursos De IA Generativa com Copilot e OpenAI
 
 Um portfólio ainda mais rico e impressionar futuros recrutadores, para isso é sempre importante mostrar os resultados do seu esforço e como você os obteve deixando claro o seu racional, para isso faça da seguinte maneira:
 
